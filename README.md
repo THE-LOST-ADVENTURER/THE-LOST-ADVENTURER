@@ -2,5 +2,8 @@
 
  us lul 
 
-somewhat horrible social skills, social anxiety/awkward,                                                                                                                                              
-dont take some of what i say seriously i just get nervous, treat me with care and you'll see im much different & Friendly : )
+horrible social skills, social anxiety/awkward,                                                                                                                                              
+dont take some of what i say seriously i just dont know what to sayy, treat me with care and you'll see im much more hyper & Friendly PLSS                                            
+*I LOVE HAVING MORE FRIENDz !! I JUST dont KNOW HOW TO APPROACH PEOPLE*
+ 
+hi emotional numbness and bipolar depressio n what the hell!
