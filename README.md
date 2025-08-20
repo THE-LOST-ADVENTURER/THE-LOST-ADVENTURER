@@ -3,6 +3,6 @@
  us lul 
 
 horrible social skills, social anxiety/awkward,                                                                                                                                              
-dont take some of what i say seriously i just dont know what to sayy, treat me with care and you'll see im much more hyper & Friendly PLSS                                            
-*I LOVE HAVING MORE FRIENDz !! I JUST dont KNOW HOW TO APPROACH PEOPLE*
+
+**IM SORRY THIS IS RLLY OUTDATED I'LL FIX IT PLSS**
  
