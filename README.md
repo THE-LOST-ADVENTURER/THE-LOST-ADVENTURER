@@ -21,6 +21,6 @@
 
 [rentry](https://rentry.co/purposeprotocal) ‎   $\texttt{\color{#9c4f32}𖹭‎‎}$  [strawpage](https://imsorryimamonster.straw.page)‎‎  ‎  $\texttt{\color{#9c4f32}𖹭‎‎}$ ‎  [pronoun.cc](https://pronouns.cc/@CCharmsz) ‎‎   $\texttt{\color{#9c4f32}𖹭‎‎}$‎ ‎  [atabook](https://ccharmz.atabook.org)  
 
-  $\texttt{\color{#8f2919} working so links might be unfinished! ✫ }$ 
+  $\texttt{\color{#8f2919} big big big wip srry ✫ }$ 
 
 
