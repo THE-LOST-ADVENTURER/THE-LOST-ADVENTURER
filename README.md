@@ -18,9 +18,11 @@
 
   $\texttt{\color{#a0733c} He/She }$ 
 
-<img width="160" height="138" alt="marshswords sword" src="https://github.com/user-attachments/assets/fb998da4-9cc7-4360-a2c6-eeabf183d468" />
 
 [rentry](https://rentry.co/purposeprotocal) ‎   $\texttt{\color{#9c4f32}𖹭‎‎}$  [strawpage](https://imsorryimamonster.straw.page)‎‎  ‎  $\texttt{\color{#9c4f32}𖹭‎‎}$ ‎  [pronoun.cc](https://pronouns.cc/@CCharmsz) ‎‎   $\texttt{\color{#9c4f32}𖹭‎‎}$‎ ‎  [atabook](https://ccharmz.atabook.org)  
+
+
+<img width="160" height="138" alt="marshswords sword" src="https://github.com/user-attachments/assets/fb998da4-9cc7-4360-a2c6-eeabf183d468" />
 
   $\texttt{\color{#8f2919} big big big wip srry ✫ }$ 
 
